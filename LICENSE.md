@@ -1,4 +1,4 @@
-
+Enhance your Atlas VPN experience with Atlas VPN rare Extension: 24/7-support & multi-device-support, the #1 extension. Includes 24/7-support and multi-device-support for a safer
 
 
 
